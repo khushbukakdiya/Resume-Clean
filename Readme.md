@@ -1,1 +1,1 @@
-Visit at [https://khushbukakdiya.github.io/resume/]
+Visit at [(https://khushbukakdiya.github.io/Resume-Clean/)]
